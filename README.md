@@ -2,6 +2,11 @@
 
 🌐 Socials:
 
+![image](https://github.com/nawelo/DM-ALL-ACCOUNT/assets/169001310/e5dc1ec2-097d-4aac-b519-2f6e74c32e3e)
+![image](https://github.com/nawelo/DM-ALL-ACCOUNT/assets/169001310/c3bcfa29-c576-4a74-a145-f87392adf63c)
+
+
+
 💻 language:
 
 ![image](https://github.com/nawelo/DM-ALL-ACCOUNT/assets/169001310/47336653-ddba-45ea-97e5-ebdc6e674ad9)
